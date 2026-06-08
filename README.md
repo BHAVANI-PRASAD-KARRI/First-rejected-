@@ -3,7 +3,7 @@ At my place software development jobs
 # 💔 First Rejection
 
 > “Every rejection is a redirection toward something better.”
-ok ti
+
 ---
 
 ## 📖 About
